@@ -17,7 +17,7 @@ You have to know who to choose, there are many scammers, trust me:
 
 ⭐️ Standard - $200 - $400 ⭐️ : 500 USDT - 1000 USDT
 
-💵 Demo - $50 💵 : 300 USDT
+💵 Demo - $50 💵 : 350 USDT
 
 (If you need other quantity, please let me know)
 
